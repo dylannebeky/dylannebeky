@@ -1,10 +1,10 @@
-Bonjour, je m'appelle Rebecca Dylanne, une formatrice en crypto-monnaie.
-2300 BTC FLASH à vendre transférables dans trois portefeuilles
-tels qu'ils sont : binance, Trust Wallet et Tokenpocket.
-La durée de vie de BTC FLASH est de 120 jours dans les portefeuilles
-qui peuvent être échangés contre trois devises telles que
-USDT ERC20 TRC20 BEP20 /ETH/XRP. Vendu à partir de 10 BTC pour un prix de 1 500 $.
-Mode de paiement : USDT et BTC.
-Contacte Telegram 👇🏻👇🏻
-https://t.me/Dylannebeky  
-<!--- dylannebeky/dylannebeky est un ✨ référentiel spécial ✨
+Hello, my name is Rebecca Dylanne, a cryptocurrency trainer.
+  2300 BTC FLASH for sale transferable in three wallets
+  as they are: binance, Trust Wallet and Tokenpocket.
+  BTC FLASH lifespan is 120 days in wallets
+  which can be exchanged for three devices such as
+  USDT ERC20 TRC20 BEP20 /ETH/XRP.  Sold from 10 BTC for a price of $1,500.
+  Payment method: USDT and BTC.
+  Contact Telegram 👇🏻👇🏻
+  https://t.me/Dylannebeky
+  <!--- dylannebeky/dylannebeky is a ✨ special repository ✨
